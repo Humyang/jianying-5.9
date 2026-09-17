@@ -14,4 +14,4 @@ AI自动剪辑常用的剪映版本这里都有
 
 ## capcut 5.9 电脑版（内有安装教程）+ capcut 历史版本
 
-
+https://v.v8l.cn/s/YkuC87e
