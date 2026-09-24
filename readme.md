@@ -13,6 +13,11 @@ AI自动剪辑常用的剪映版本这里都有
 
 https://pan.baidu.com/s/1qKRSlYh_Jm0deK641F_urQ?pwd=jz98 
 
+## 【剪映专业版6.0.1】剪映最新破解版，免费激活解锁所有VIP功能，打开即用！提供绿色汉化破解版下载及安装使用教程。
+
+我用夸克网盘给你分享了「剪映V6...剪映V6.3永久版，先点保存，再随意操作（保存之前不可下载）」，点击链接或复制整段内容，打开「夸克APP」即可获取。
+链接：https://pan.quark.cn/s/145d26c28018
+
 ## 有电脑的可以领百度网盘SVIP 21天了
 
 百度网盘：https://pan.baidu.com/s/1Y2cI6apq_qnyMouweSVhrQ?pwd=ghck 
